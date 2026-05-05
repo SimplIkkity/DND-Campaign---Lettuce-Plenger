@@ -16,6 +16,11 @@
 | ```Reivan``` | Wizard | High-Elf |
 | ```Jeanne``` | Paladin | Human |
 
+(Placeholder due to me being too lazy to draw)
+
+![image alt](https://github.com/SimplIkkity/DND-Campaign---Lettuce-Plenger/blob/main/ChatGPT%20Image%20May%204%2C%202026%2C%2007_10_14%20PM.png)
+
+
 ---
 
 ### **Prologue:** Where everything started...
