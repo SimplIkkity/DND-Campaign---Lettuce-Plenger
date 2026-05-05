@@ -23,66 +23,100 @@
 
 ---
 
-### **Prologue:** Where everything started...
-
-
-Tavern itu gelap, reman remang, tidak seperti tavern pada umumnya, aku meminum birku dan melihat sekeliling.
+Tavern itu gelap dan remang-remang, tidak seperti tavern pada umumnya. Aku meminum bir sambil mengamati keadaan di sekeliling.
 
 "Ahh, bosan... Nyari angin deh..."
 
-Aku berdiri lalu keluar dari tavern, sangat terang langitnya, membuat mataku perih.
+Aku berdiri, lalu berjalan keluar dari tavern. Cahaya langit di luar terasa sangat terang hingga membuat mataku perih.
 
 "Ngh... Anjing terang banget."
 
-Akupun melihat kerumunan orang orang melihat kesebuah poster. Aku mendatangi poster itu dan membacanya.
+Perhatianku tertuju pada sekelompok orang yang berkumpul di depan sebuah poster. Aku pun mendekat dan membacanya.
 
-"Dicari, orang yang berani... kuat... Apa-apaan ini? lamaran kerja-"
+"Dicari, orang yang berani... kuat... Apa-apaan ini? Lamaran kerja—"
 
-Nafasku berhenti sebentar, karena sesuatu diposter itu.
+Nafasku terhenti sejenak saat membaca bagian berikutnya.
 
-### "GRATIS BIR DAN MAKAN ENAK SEPANJANG PETUALANGAN!!"
-
+"GRATIS BIR DAN MAKAN ENAK SEPANJANG PETUALANGAN!!"
 "LAH GAS KITA, HAHANYINGGG"
 
-Aku merobek poster itu dan membawanya.
+Tanpa ragu, aku merobek poster tersebut dan membawanya.
 
 ---
 
-Pada keesokan harinya aku berkumpul dengan beberapa orang lainnya yang terpilih.
+Keesokan harinya, aku berkumpul bersama beberapa orang lain yang juga terpilih.
 
-"Kalian, kalian dipilih karena kondisi sang raja sangat kritis. Kami membutuhkan kemampuan petualangan kalian untuk mencari suatu benda... **Bunga Empat Warna**", Seorang pria dengan kumis dan pakaian kerajaan berkata dengan tegas. Tidak lama dari itu dia meminta kami untuk memperkenalkan diri sendiri.
+"Kalian dipilih karena kondisi sang raja sangat kritis. Kami membutuhkan kemampuan petualangan kalian untuk mencari suatu benda... Bunga Empat Warna," ujar seorang pria berkumis dengan pakaian kerajaan, dengan nada tegas. Setelah itu, ia meminta kami untuk memperkenalkan diri.
 
-Nowa, Maru, Skotch, Reivan, dan Jeanne. Nama-nama itu adalah orang yang akan menjadi companion-ku selama perjalanan ini... Menarik.
+Nowa, Maru, Skotch, Reivan, dan Jeanne. Nama-nama itu akan menjadi rekan perjalananku selama petualangan ini. Cukup menarik.
 
-"Ah benar, namaku Hae Ruu, aku seorang warlock, dan aku... memiliki masa lalu yang cukup kelam. Orang-orang ku dibunuh oleh sebuah... iblis... banteng merah bernama Megarawatika", Aku berbohong.... ya, lagi pula untuk apa aku berkata dengan jujur. Tidak ada satupun yang dapat dipercaya.
+"Ah benar, namaku Hae Ruu, aku seorang warlock, dan aku... memiliki masa lalu yang cukup kelam. Orang-orangku dibunuh oleh sebuah... iblis... banteng merah bernama Megarawatika,"
 
-Tidak lama dari itu, kami bersiap dan mulai pergi.
+Itu adalah kebohongan. Mengatakan kebenaran tidak ada gunanya. Tidak ada satu pun yang benar-benar dapat dipercaya.
 
-"Lu pada dari mana aja?" Aku bertanya untuk basa-basi...
+Tak lama, kami bersiap dan mulai berangkat.
 
-"Lah lu ga dengerin kita perkenalan ya anjing?" Skotch bilang. Cuma ya, aku tidak terlalu peduli...
+"Lu pada dari mana aja?"
 
-"Elah, cuma nanya doang biar basa-basi, sepi banget sepi anjay" Aku bilang sambil muterin mataku. Aku melihat ke arah Nowa, Aarakocra, hybrid burung, jarang terlihat mengikuti petualangan, terlebih... yang seperti ini...
+Aku membuka percakapan.
 
-Kami berhenti ditengah hutan. "Ini mau kemana lagi? emang pada tau tempatnya dimana?" Nowa nanya sambil garuk garuk kepala. "Jujur sih enggak, cuma gua cek sekitar dulu deh..." Aku bilang, sambil ngeliat kiri kanan. Enggak, Huu Rae, lihat sekeliling. Aku perintahkan pact of chain-ku.
+"Lah lu ga dengerin kita perkenalan ya anjing?"
 
-Aku menemukan sebuah rawa, dengan banyak goblin dan orc disana... sepertinya bukan, bahkan bungapun ragu untuk tumbuh.
+Skotch nyaut dengan nada nyolot
 
-"Ngh, disono ada rawa-rawa isinya monster. Jangan kesono", Aku bilang, Nowa tiba tiba terbang dan melihat sekeliling, ya, dia melihat rawa-rawa itu juga... cuma... ada sebuah desa diujung lain... sebuah desa yang terlihat tidak berpenghuni...
+Aku tidak terlalu memedulikan respons tersebut.
 
-"Gimana kalo kita ke-arah utara? disana ada desa, kosong?" Nowa bilang, Huu Rae kembali kearahku tanpa ada yang melihat. "Boleh, ayo kita kesono" Jeanne bilang, sedangkan Reivan... Aku diam diam detect magic miliknya... dan...
+"Elah, cuma nanya doang biar basa-basi, sepi banget sepi anjay"
 
-aku terdiam.
+Aku memutar mataku sebelum mengalihkan pandangan ke arah Nowa. Ia adalah seorang Aarakocra, makhluk hybrid burung yang jarang terlihat dalam kelompok petualang, terlebih dalam situasi seperti ini.
 
-hening sesaat.
+Perjalanan membawa kami berhenti di tengah hutan.
 
-Apa-apaan jumlah mana yang dia miliki?!
+"Ini mau ke mana lagi? Emang pada tahu tempatnya di mana?"
 
-Dia pun menepuk pundakku. "Ayo, jangan bengong mulu. Nanti kerasukan." dia bilang. "I-Iya kek..." Aku bilang sambil perlahan tersadar dari shock berat sesaat.
+Jeanne bilang sambil celingak celinguk mencari arah.
+
+"Jujur sih enggak, cuma gua cek sekitar dulu deh..."
+
+Aku mengamati sekeliling. Tidak, Huu Rae. Lihat lebih jauh. Aku memerintahkan pact of chain milikku untuk melakukan pengintaian.
+
+Dari pengamatan tersebut, aku menemukan sebuah rawa yang dipenuhi goblin dan orc. Tempat itu tampaknya tidak sesuai dengan tujuan kami. Bahkan tumbuhan pun tampak enggan tumbuh di sana.
+
+"Ngh, di sana ada rawa-rawa isinya monster. Jangan ke sana."
+
+Nowa segera terbang untuk memastikan keadaan sekitar. Ia juga menemukan rawa tersebut, tetapi perhatiannya tertuju pada hal lain—sebuah desa di ujung wilayah itu, tampak kosong dan tidak berpenghuni.
+
+"Gimana kalo kita ke arah utara? Di sana ada desa, kosong?"
+
+"Boleh, ayo kita ke sana."
+
+Jeanne dan Maru menganggukan kepalanya.
+
+Huu Rae kembali kepadaku tanpa menarik perhatian siapa pun.
+
+Sementara yang lain mulai berjalan, secara diam-diam aku mencoba mendeteksi energi sihir milik Reivan.
+
+Aku terdiam.
+
+Keheningan sesaat menyelimuti pikiranku.
+
+Jumlah mana yang dimilikinya... tidak masuk akal.
+
+"Ayo, jangan bengong mulu. Nanti kerasukan."
+
+"I-Iya kek..."
+
+Aku tersadar dari keterkejutan yang singkat namun cukup mengguncang.
 
 ---
 
-Kami pun sampai di desa itu, tidak... desa itu tidak sepi, mereka bersembunyi, kami juga. "Apa ini? Mereka terlihat seperti... **Kanibal**?" Maru bilang. "Kalo gitu gua bakal stealth ke mereka", Skotch bilang, dia mulai jalan kebelakang salah satu **Kanibal**.
+Kami akhirnya tiba di desa tersebut. Namun, desa itu tidak benar-benar kosong. Para penghuninya bersembunyi. Kami pun melakukan hal yang sama.
+
+"Apa ini? Mereka terlihat seperti... kanibal?"
+
+"Kalo gitu gua bakal stealth ke mereka"
+
+Skotch bergerak diam-diam menuju salah satu dari mereka.
 
 ...
 
@@ -90,68 +124,123 @@ CREK!
 
 ...
 
-Kami semua menahan tawa, si **Kanibal** berputar dengan dramatis kearah Skotch. "Alah anjing...." dia bilang sebelum disekap. Aku lompat untuk menyelamatkannya, tapi dari belakang seorang **kanibal** memegangku juga.
+Kami menahan tawa. Salah satu dari mereka langsung berbalik secara dramatis.
 
-Para **kanibal** mengerumini kita, yang lain mencoba untuk melawan, tapi... mereka sangat kuat, terlalu kuat... hingga seseorang datang. Entah kenapa mata kami terasa berat dan... kami pun tertidur. Kami bangun kembali dan melihat ke-kiri dan ke-kanan, para manusia merasa tempat ini gelap, tapi untuk kami, Elf dan hybrid. tempat ini... terang. Terlihat jelas jenazah orang orang yang salah melangkah kesini.
+"Alah anjing...."
 
-"Kalian, apa yang pencuri seperti kalian inginkan sebenarnya?" Orang itu berkata, kepala desa.
+Sebelum situasi dapat dikendalikan, Skotch ditangkap. Aku mencoba menolongnya, tetapi seseorang dari belakang juga menangkapku.
 
-"K-Kami disini hanya untuk mencari bunga." Jeanne berkata. "Bunga? heh... Bunga? lagi lagi alasan itu... tidak ada bunga disini." Pria itu mengeluarkan pisau dan melukai pipi Reivan. Aneh... dia bahkan tidak berkutit sedikitpun... sebenarnya siapa kakek ini?
+Kami dikepung. Upaya perlawanan yang dilakukan terasa sia-sia. Mereka terlalu kuat.
 
-"Serius pak! kita beneran nyari bunga!!" Nowa bilang dengan nada panik. Pria itu melihat kearah Nowa, "Bunga empat warna kan?... Agh, udah pasti itu... Ah udalah, jenazah disini belum dibakar juga, kalau ditambah jenazah kalian, pasti baunya makin makin."
+Hingga akhirnya, seseorang muncul.
 
-Pria itu membuka tali yang mengikat kami. "Pak, bapak... kayaknya tau sesuatu tentang bunganya..." Maru bilang. "Iya, lebih dari siapapun, Ikut saya", dia berkata dan berjalan keluar tempatnya.
+Pandangan kami mulai mengabur, kelopak mata terasa berat, dan...
 
-Kami mengikuti dari belakang, desanya tidak terbengkalai... hanya tidak terurus. "Kami adalah orang buangan, kalian pasti pikir kami kanibal karena menyimpan mayat mayat dibawah tanah... bukan, kami hanya bertahan hidup". Aku melihat ke pria itu, "Jadi... darimana nama kanibal itu berasal-" "Gak tau. Palingan orang orang yang berhasil selamat dan kabur, terus panggil kami kanibal, hoax pokoknya... duduk". Pria itu menunjuk pada sebuah tempat camping. Kami menurut tanpa adanya perlawanan dan duduk.
+Kami kehilangan kesadaran.
 
-Pria itu mulai menjelaskan dirinya dan desanya, Stoff, seorang Druid... Lycanthrope. Dan dialah Bunga empat warna itu... Werewolf dengan kutukan bunga empat warna menggigitnya, dan pada akhirnya ia mewariskan kutukan itu, siapapun yang memakan dagingnya akan sembuh dari penyakit apapun, jika dalam dosis yang lebih tinggi, maka bisa menjadi seorang **Immortal**.
+Saat terbangun, kami berada di tempat yang gelap bagi manusia, tetapi cukup terang bagi kami yang merupakan elf dan hybrid. Di sekitar kami, tampak jelas jenazah orang-orang yang sebelumnya gagal bertahan hidup di tempat ini.
 
-Singkat cerita ia pergi, kami pun bersiap untuk tidur. Dipagi harinya, kami berkeliling dan menemukan tiga tempat...
+"Kalian, apa yang pencuri seperti kalian inginkan sebenarnya?"
 
-1. Ladang bwa bwa bwa (kelinci)
-2. Sebuah HOLY COW 😱😱 (pendeta sapi yang hafal ayat kursi somehow)
-3. dan hutan.
+Seorang pria berdiri di hadapan kami. Ia tampaknya adalah kepala desa.
 
-Kami memutuskan untuk pergi melihat HOLY COW 😱😱, kami melawan beberapa goblin, dan benar saja... Reivan bukan seorang kakek biasa.
+"K-Kami di sini hanya untuk mencari bunga."
 
-Mana control yang tidak biasa itu tidak mungkin dapat diraih oleh seorang wizard biasa... apakah mungkin dia... seorang arch wizard.
+Jeanne bilang dengan nadanya yang agak panik.
 
-Tidak lama dari itu, kami berhadapan dengan mimic... dan disaat itulah... aku memanggilnya. Huu Rae, didepan mereka.
+"Bunga? Heh... Bunga? Lagi-lagi alasan itu... Tidak ada bunga di sini."
 
-"布瑠部" (Furube)
+Ia melukai pipi Reivan dengan pisau. Namun, tidak ada reaksi berarti darinya.
 
-"由良由良" (Yurayura)
+Keanehan itu menimbulkan pertanyaan baru untukku.
 
-"八握剣" (Yatsuka no Tsurugi)
+"Serius pak! Kita beneran nyari bunga!!"
 
-"異戒神将 후래" (Ikai shinsho: Huu Rae)
+Pria itu menatap Nowa dengan tajam.
 
-Huu Rae tidak memakan banyak waktu, ia muncul dan langsung menghancurkan lapisan luar Mimic.
+"Bunga empat warna kan?... Agh, sudah pasti itu. Ah sudahlah. Jenazah di sini saja belum dibakar. Kalau ditambah jenazah kalian, baunya makin parah."
 
-Kakek itu pun langsung follow-up dengan menyerang, critical hit, makhluk itu jatuh tak berdaya.
+Ia kemudian melepaskan ikatan kami.
 
-Aku terdiam, tidak... orang ini... lebih kuat dari dugaanku...
+"Pak... bapak kayaknya tahu sesuatu tentang bunganya..."
 
-Singkat cerita kami akhirnya bertemu dengan HOLY COW 😱😱, ia menjelaskan dirinya sebagai cleric yang dikutuk menjadi HOLY COW 😱😱. Kami membawanya ke camp fire, dengan niat untuk merevitalisasikan desa ini, stoff melihat kami membawa sapi. "Lho, apa ini... buat kurban ya?" "Eits, sapi bukan sembarang sapi" Aku bilang.
+Jeanne mengatur nafasnya dan bertanya kepada dia.
 
-"Cakep!" Yang lain nyaut.
+"Iya, lebih dari siapa pun. Ikut saya."
 
-"Iya tau, makasih."
+Kami mengikuti langkahnya keluar. Desa tersebut tidak sepenuhnya terbengkalai, hanya kurang terurus.
 
-Ya, Aku dikeroyok...
+"Kami adalah orang buangan. Kalian pasti mengira kami kanibal karena menyimpan mayat di bawah tanah. Bukan. Kami hanya bertahan hidup."
 
-Jeanne dan Nowa menjelaskan kalo sapi ini adalah kunci untuk merevitalisasi desa, dengan menyembuhkan yang lain tanpa perlu pengorbanan Stoff. Stoff agak skeptis akan hal ini, tapi ia membolehkannya. Kami melihat jejak serbuk sihir, ya, Kuda Maru hilang tadi dihutan...
+"Jadi... dari mana nama kanibal itu berasal—"
 
-Sebelum melanjutkan perjalanan, kami bersiap untuk beristirahat. Saat aku ingin berbaring, aku- tidak, Huu Rae mendengan sesuatu dari kejauhan... suara stoff...
+"Gak tau. Palingan orang-orang yang selamat terus nyebarin omong kosong... duduk."
 
-"Ya, mereka ada disini... baiklah..."
+Ia menunjuk ke sebuah area perkemahan. Kami pun duduk tanpa banyak protes.
 
-Aku mulai mencurigai Stoff kembali, ada sesuatu yang janggal dari semua ini...
+Pria itu kemudian memperkenalkan dirinya sebagai Stoff, seorang druid sekaligus Lycanthrope. Ia mengungkapkan bahwa dirinya adalah “Bunga Empat Warna” yang kami cari.
+
+Kutukan tersebut berasal dari seekor werewolf yang sebelumnya menggigitnya. Siapa pun yang mengonsumsi dagingnya dapat sembuh dari penyakit apa pun. Dalam jumlah tertentu, bahkan dapat memperoleh keabadian.
+
+Setelah penjelasan itu, ia meninggalkan kami. Kami pun bersiap untuk beristirahat.
 
 ---
 
-Didalam tidur... suara itu kembali bergema.
+Keesokan paginya, kami menjelajahi sekitar dan menemukan tiga lokasi:
+
+1. Ladang kelinci bwa bwa bwa,
+2. Sebuah HOLY COW 😱😱 (pendeta sapi yang entah bagaimana hafal ayat kursi),
+3. Dan sebuah hutan.
+
+Kami memutuskan untuk menuju HOLY COW 😱😱. Dalam perjalanan, kami menghadapi beberapa goblin. Dari situ semakin jelas bahwa Reivan bukanlah sosok biasa.
+
+Kemampuan pengendalian mana seperti itu bukanlah sesuatu yang bisa dicapai oleh wizard biasa. Kemungkinan besar, ia adalah seorang archwizard.
+
+Tak lama kemudian, kami berhadapan dengan seekor mimic. Pada saat itulah aku memanggil Huu Rae di hadapan mereka.
+
+"布瑠部" (Furube)
+"由良由良" (Yurayura)
+"八握剣" (Yatsuka no Tsurugi)
+"異戒神将 후래" (Ikai shinsho: Huu Rae)
+
+Makhluk itu muncul dan langsung menghancurkan lapisan luar mimic.
+
+Reivan segera melanjutkan serangan dengan presisi tinggi. Serangan tersebut mengenai titik kritis, menjatuhkan makhluk itu tanpa perlawanan berarti.
+
+Aku kembali terdiam.
+
+Kekuatan orang ini... jauh melampaui perkiraanku.
+
+Singkat cerita, kami bertemu dengan HOLY COW 😱😱, yang menjelaskan bahwa dirinya adalah seorang cleric yang terkena kutukan.
+
+Kami membawanya kembali ke perkemahan dengan tujuan membantu merevitalisasi desa.
+
+"Lho, apa ini... buat kurban ya?"
+
+"Eits, sapi bukan sembarang sapi"
+
+"Cakep!"
+
+"Iya tau, makasih."
+
+Ya, aku dikeroyok.
+
+Jeanne dan Nowa menjelaskan bahwa makhluk tersebut dapat menjadi solusi tanpa perlu mengorbankan Stoff. Ia tampak ragu, tetapi akhirnya mengizinkan.
+
+Tak lama kemudian, kami menemukan jejak serbuk sihir. Kuda milik Maru diketahui menghilang di hutan.
+
+Sebelum melanjutkan perjalanan, kami memutuskan untuk beristirahat. Saat aku hendak berbaring, aku—atau lebih tepatnya Huu Rae—mendengar sesuatu dari kejauhan.
+
+Suara milik Stoff.
+
+"Ya, mereka ada di sini... baiklah..."
+
+Kecurigaanku kembali muncul. Ada sesuatu yang tidak beres.
+
+---
+
+Dalam tidurku, suara itu kembali terdengar.
 
 "Waktunya hampir tiba."
 
---*Character Quest: Hae Ruu and Erana*--
+—Character Quest: Hae Ruu and Erana—
