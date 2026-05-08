@@ -12,7 +12,7 @@
 | ```Hae Ruu``` | Warlock | Half-Elf |
 | ```Nowa``` | Rogue | Aarakocra |
 | ```Maru``` | Fighter | Human |
-| ```Skotch``` | Ranger | Human |
+| ```Skotch``` | Ranger | Thiefling |
 | ```Reivan``` | Wizard | High-Elf |
 | ```Jeanne``` | Paladin | Human |
 
