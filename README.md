@@ -243,4 +243,16 @@ Dalam tidurku, suara itu kembali terdengar.
 
 "Waktunya hampir tiba."
 
-—Character Quest: Hae Ruu and Erana—
+---
+
+Pagi harinya kami pergi ke hutan untuk mencari kuda Maru, disana Jeanne melihat kuda itu... tapi... ada seorang anak, kami pernah bertemu dengannya, sebelum pergi ke HOLY COW 😱😱. Ia menunggangi kuda itu... kami pun pergi kearah kuda itu. Kami mengejarnya sampai kedalam hutan, disana kami bertemu tiga mahluk itu.
+
+TIGA KELINCI BWA BWA BWA.
+
+Bwa bwa bwelenger.
+
+Bwa bwa bwrute.
+
+dan Bwa bwa bwoss.
+
+---
